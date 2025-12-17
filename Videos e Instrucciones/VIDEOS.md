@@ -11,7 +11,7 @@ Estos videos te permitirán:
 
 ### ▶️ Ver videos
 
-[Haz clic aquí para acceder a los videos demostrativos](https://drive.google.com/file/d/1pdyVm7qUj5KCFO7JXSiyupnHZan5hD5_/view?usp=sharing)
+[Haz clic aquí para acceder al vídeo demostrativo](https://drive.google.com/file/d/1pdyVm7qUj5KCFO7JXSiyupnHZan5hD5_/view?usp=sharing)
 
 ---
 
